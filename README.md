@@ -12,6 +12,7 @@ Busco oportunidades para adquirir experiência prática, desenvolver habilidades
 
 Meu portifolio:
 https://docs.google.com/presentation/d/1TNokCQ760eJZBEi0aCTWrLrMy19HGyesmhb6usC7T5g/edit?slide=id.gc6f80d1ff_0_0#slide=id.gc6f80d1ff_0_0
+
 Meu site:
 https://sites.google.com/view/najla-amaral-waller/p%C3%A1gina-inicial
 
