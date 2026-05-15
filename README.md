@@ -66,5 +66,6 @@ Busco oportunidades para adquirir experiência prática, desenvolver habilidades
 
 ---
 
-## 📫 Contato  
-📧 najlaawaller@gmail.com
+## 📫 Contatos 
+- najlaawaller@gmail.com
+- www.linkedin.com/in/najla-waller-097b32292
