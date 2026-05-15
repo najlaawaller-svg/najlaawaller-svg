@@ -10,6 +10,12 @@ Meu nome é Najla Amaral Waller, tenho 17 anos e sou estudante de Engenharia da 
 
 Busco oportunidades para adquirir experiência prática, desenvolver habilidades técnicas e contribuir em projetos na área da tecnologia.
 
+Meu portifolio:
+https://docs.google.com/presentation/d/1TNokCQ760eJZBEi0aCTWrLrMy19HGyesmhb6usC7T5g/edit?slide=id.gc6f80d1ff_0_0#slide=id.gc6f80d1ff_0_0
+Meu site:
+https://sites.google.com/view/najla-amaral-waller/p%C3%A1gina-inicial
+
+
 ---
 
 ## 🎓 Formação
