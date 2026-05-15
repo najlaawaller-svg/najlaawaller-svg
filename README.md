@@ -1,4 +1,4 @@
-# 👋 Olá, eu sou Najla Amaral Waller
+# Olá, eu sou Najla Amaral Waller
 
 🎓 Estudante de Engenharia da Computação | Interessada em Hardware, Software e Tecnologia
 
@@ -25,7 +25,7 @@ Busco oportunidades para adquirir experiência prática, desenvolver habilidades
 
 ---
 
-## 💻 Habilidades
+## 💻 Caracteristicas e Habilidades
 
 ✔ Curiosidade  
 ✔ Criatividade  
